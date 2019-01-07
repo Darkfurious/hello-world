@@ -6,3 +6,5 @@ Don't say anything about the name... It's tradition, you cunt.
 Usually i don't use bad words, just don't touch my traditions.
 
 Have a banana. :)
+
+and a sword... it's dangerous out there.
